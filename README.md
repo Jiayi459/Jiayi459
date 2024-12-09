@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Jiayi459
+- 👋 Hi, I’m @Jiayi
 - 👀 I’m interested in music,writing and movies
 - 🌱 I’m currently learning mathematics
 - 💞️ I’m looking to collaborate on anything
