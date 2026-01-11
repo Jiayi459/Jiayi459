@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Jiayi
-- 👀 I’m interested in music,hiking and photography
+- 👀 I’m interested in music, hiking and photography
 - 🌱 I’m currently learning mathematics
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me jh9141@nyu.edu
